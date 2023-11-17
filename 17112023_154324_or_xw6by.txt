@@ -1,0 +1,1 @@
+Tigers have striped skin, not just striped fur
